@@ -1,1 +1,1 @@
-
+allela codes in HTML
